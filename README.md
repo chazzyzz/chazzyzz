@@ -2,7 +2,7 @@
 - 🐦 Student currently working on a few personal projects!
 - 🌱 Trying out a bunch of new stuff 
 - ✨ Trying to make the best out of every situation
-- 📫 Twitter: @chazz_yx 
+  
 
 
 <a href="https://twitter.com/chazz_yx">
